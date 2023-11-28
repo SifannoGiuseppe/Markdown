@@ -1,5 +1,3 @@
-###### 18/11/23, 22.51 Mezze maniche rigate n.122 alla carbonara - Voiello
-
 ![pasta](https://www.unastellaincucina.com/wp-content/uploads/2020/06/Mezze-maniche-alla-carbonara-980x735.jpg)
 ***
 
@@ -35,13 +33,12 @@ resistere alla tentazione.
    - Lasciare sfrigolare in una padella a fuoco moderato finché la parte grassa diventa trasparente.
    - Versare il grasso in una ciotola e rimettere il guanciale sul fuoco per renderlo croccante.
    - Spegnere la fiamma e mettere da parte il guanciale.
-2. In una scodella amalgamare brevemente con una
-spatola i tuorli, unire il pepe e il pecorino
-(tenendone da parte due cucchiai). Aggiungere 2
-cucchiai di grasso del guanciale per rendere il
-composto vellutato.
+2. Parte:
+   - In una scodella amalgamare brevemente con una spatola i tuorli, unire il pepe e il pecorino
+(tenendone da parte due cucchiai).
+   - Aggiungere 2 cucchiai di grasso del guanciale per rendere il composto vellutato.
 3. Parte:
-    - Nel frattempo cuocere le Mezze Maniche Rigate Voiello usando circa la metà del sale adoperato abitualmente (il pecorino     è piuttosto saporito).
+    - Nel frattempo cuocere le Mezze Maniche Rigate Voiello usando circa la metà del sale adoperato abitualmente (il pecorino è piuttosto saporito).
     - Mettere da parte un po’ d’acqua di cottura e scolare al dente.
 4. Parte:
     - Versare le Mezze Maniche Rigate nella padella del guanciale.
